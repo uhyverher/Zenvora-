@@ -1,2 +1,2 @@
 # Zenvora-
-AI tech comalny 
+AI tech company 
